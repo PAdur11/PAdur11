@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @PAdur11
+- 👀 I’m interested in python programming.
+- 🌱 I’m currently learning how to code in HTML.
+- 💞️ I’m looking to collaborate on many different projects.
+- 📫 How to reach me philadur2006@gmail.com
+- 😄 Pronouns: He/Him
